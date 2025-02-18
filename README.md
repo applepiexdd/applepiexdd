@@ -1,4 +1,3 @@
-![Untitled181_20250218191109](https://github.com/user-attachments/assets/2c1810b5-4635-4d26-a7fb-f6f64de1e545)
-
+![Untitled182_20250218191223](https://github.com/user-attachments/assets/4ba79a41-0722-4c36-9304-eacbfa2f1b24)
 # he's so me
 still dont know how to use github /gen
