@@ -1,3 +1,4 @@
-![8809E7E4-78B7-433E-8329-52B99363E491](https://github.com/user-attachments/assets/6f35aac8-ab71-49ef-a32b-0b7cf04bc401)
+![Untitled181_20250218191109](https://github.com/user-attachments/assets/2c1810b5-4635-4d26-a7fb-f6f64de1e545)
+
 # he's so me
 still dont know how to use github /gen
