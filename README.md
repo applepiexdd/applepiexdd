@@ -1,3 +1,6 @@
-![Untitled253_20250407232523](https://github.com/user-attachments/assets/d05e8cc1-6f45-4a67-be9c-0259bc41b02f)
-# I love this sillies
-still dont know how to use github /gen
+![IMG_3510](https://github.com/user-attachments/assets/fef35652-5c6c-4cdf-886c-a19420383990)
+
+i'm okay with c+h gang! i don't bite
+
+i'm shy.. yeah.. hii!!!
+lowkey don't know what to say next, might rmk this later
